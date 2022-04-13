@@ -1,4 +1,4 @@
-# 🚫🚫🚫***___DO NOT GET CAUGHT USING THIS!!!___***🚫🚫🚫
+# 🚫🚫🚫___DO NOT GET CAUGHT USING THIS!!!___🚫🚫🚫
 
 # ***[💖google💖](https://google.com/)***
 
